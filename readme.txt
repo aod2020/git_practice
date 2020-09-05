@@ -1,13 +1,13 @@
-I've been thinkin' about ya lately
-Reminiscin', going crazy
-Miss the way your kiss would keep me up
-Hey, wish that you were here tonight
-Drinkin' vodka soda, extra limes
-And we could just get back to being us
-
-'Cause I just wanna be cool again, cool again, cool again
-Like we were last summer
-Want you again, you again, you again
-To be stealin' my covers
-All tangled in each other, nights still playin' back in my head
-I just wanna be cool again, cool again, cool again, yeah
+Some dreams live on in time forever
+Those dreams, you want with all your heart
+And I'll do whatever it takes
+Follow through with the promise I made
+Put it all on the line
+What I hoped for at last would be mine
+If I could reach, higher
+Just for one moment touch the sky
+From that one moment in my life
+I'm gonna be stronger
+Know that I've tried my very best
+I'd put my spirit to the test
+If I could reach
